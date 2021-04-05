@@ -1,0 +1,1 @@
+# TugasAI_KNN_1184024_IraDwita
